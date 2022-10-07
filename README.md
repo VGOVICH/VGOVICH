@@ -1,0 +1,10 @@
+- 📧 - vgovich@gmail.com
+- 🌏 https://vgovich.ru/
+- ✈  https://t.me/vgovich
+- VK: https://vk.com/vgovich
+- Самое дорогое — это идея. The most valuable thing is an idea.
+
+<!---
+VGOVICH/VGOVICH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->

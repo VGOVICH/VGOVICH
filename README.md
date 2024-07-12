@@ -1,5 +1,5 @@
 - 📧 - vgovich@gmail.com
-- 🌏 [https://vular.ru
+- 🌏 https://vular.ru
 - ✈  https://t.me/vasilylife
 - VK: https://vk.com/vasilylife
 - Самое дорогое — это идея. The most valuable thing is an idea.
